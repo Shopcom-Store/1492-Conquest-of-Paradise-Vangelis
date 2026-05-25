@@ -6,6 +6,12 @@ https://www.shopcom.tn/product/1492-conquest-of-paradise-vangelis/download
 
 Product Price : Free
 
+Payment :
+https://www.shopcom.tn/payment
+
+Website :
+https://www.shopcom.tn
+
 Description :
 
 1492: Conquest of Paradise is the 1992 soundtrack album by Greek composer Vangelis, directed by Ridley Scott for the film 1492: Conquest of Paradise. It stands as one of Vangelis’s most celebrated works, blending his signature electronic orchestration with choral, ethnic, and Renaissance elements.

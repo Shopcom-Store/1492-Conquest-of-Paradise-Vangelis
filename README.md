@@ -4,7 +4,11 @@ Download link :
 
 https://www.shopcom.tn/product/1492-conquest-of-paradise-vangelis/download
 
-Product Price : Free
+Purchase link :
+
+https://www.shopcom.tn/product/1492-conquest-of-paradise-vangelis/
+
+Product Price : 13 $
 
 Payment :
 https://www.shopcom.tn/payment
